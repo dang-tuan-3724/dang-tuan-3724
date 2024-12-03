@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dang-tuan-3724
 - 👀 I’m interested in AI, new phone, technology, photography, design and Japanese.
-- 🌱 I’m currently learning web developmnt and Japanese.
+- 🌱 I’m currently learning web development and Japanese.
 - 💞️ I’m looking for web project or UI/UX to collaborate.
 - 📫 How to reach me: [LINKED IN]: linkedin.com/in/dangminhtuan3724 [EMAIL]: tuan.dangminh372004@hcmut.edu.vn
 - 😄 Pronouns: my choice-my future.
