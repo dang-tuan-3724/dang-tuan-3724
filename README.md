@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI, new phone, technology, photography, design and Japanese.
 - 🌱 I’m currently learning web development and Japanese.
 - 💞️ I’m looking for web project or UI/UX to collaborate.
-- 📫 How to reach me: [LINKED IN]: linkedin.com/in/dangminhtuan3724 [EMAIL]: tuan.dangminh372004@hcmut.edu.vn
+- 📫 How to reach me: [LINKED IN]: linkedin.com/in/dangminhtuan3724 [EMAIL]: tuanminhdang372004@gmail.com
 - 😄 Pronouns: my choice-my future.
 - ⚡ Fun fact: "color blind", yeah, sometimes i can't tell two similar colors apart like brown-green, green-orange, etc:)))
 
